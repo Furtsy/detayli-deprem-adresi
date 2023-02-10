@@ -1,0 +1,1 @@
+# detayli-deprem-adresi
